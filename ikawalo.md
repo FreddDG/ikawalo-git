@@ -1,0 +1,1 @@
+ika walo najud ko, .lageh bahalag hinay basta kanunay. ika walong sugo nang utos.
